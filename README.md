@@ -1,1 +1,1 @@
-# hadiah.github.io
+https://relativerez.github.io/hadiah.github.io/
